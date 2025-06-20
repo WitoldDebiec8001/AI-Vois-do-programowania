@@ -10,4 +10,4 @@ Pisze się list do AI. Do Alexy trzeba pisać jako pilota listy miłosne aby co�
 To jest maszynka do softwaru od gwiazdy mnie. 
 To jest programator automatyczny do wymyślania gotowych produktów za pomocą maszynki AI. 
 Ten vois EEG KALKULATOR CARDPUTER produkuje oprogramowanie masowo jak fabryka papierosów. 
-Ten cardcomputer generuje jako programator automatyczny encyklopedię komputerowe software gotowych programów.
+Ten cardcomputer generuje jako programator automatyczny encyklopedię komputerowe software gotowych programów. To jest vois ze strefy 51 futurystyczny cardputer Vois EEG programtor automatyczny. 
