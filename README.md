@@ -15,3 +15,4 @@ Ten Vois wyklepie całom serie statków kosmicznych jonolotów i zbroi Iron Men 
 Jak chce się gotowy produkt to podpina się to pod drukarkę kwantową i drukuje się radio drukarką kwantową jak replikatorem materi gotowy produkt na sklep. 
 To jest projekt cardcomputer dla nie wiedzących. 
 To jest już Lotto mechatroniczne gotowców z encyklopedi dla GitHub i Cercil. 
+To jest Vois EEG Cardputer omnibus. 
