@@ -22,3 +22,4 @@ To nie jest Alexa Vois w kocyku do ruchania i pisania listów miłosnych do AI t
 Cardputer klasyczny marnuje AI lub ludzi hakerów programistów jak naboje do pracy to gotowy Vois AI EEG nic nie marnuje z populacji. Vois ten można nie używany sprzedać lub wyrzucić do kosza. 
 To jest strugaczka do ołówków. 
 Ten software daje tyle rzeczy i kodu co tygodnik. 
+Ten komputer daje gotowce na tacy. 
