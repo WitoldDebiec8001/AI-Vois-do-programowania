@@ -8,3 +8,4 @@ Voisowi podaje się tylko opis oprogramowania na karte micro SD a vois pisze opr
 Vois liczy automatycznie software i go generuje bez znajomości programowania pisze się software i AI i kody jak listy miłosne czy meile zwykłym językiem z opisu oprorgramowania. 
 Pisze się list do AI. Do Alexy trzeba pisać jako pilota listy miłosne aby coś napisała tu się pisze tylko opis zamuwionego softwera bez miłości na sprzedaż. 
 To jest maszynka do softwaru od gwiazdy mnie. 
+To jest programator automatyczny do wymyślania gotowych produktów za pomocą maszynki AI. 
