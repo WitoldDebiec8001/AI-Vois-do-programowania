@@ -5,3 +5,4 @@ Programowanie DNA i kodu koputerowego i AI i oprogramowania jak na statkach Star
 Kody DNA i Kody komputerowe i kody AI i kody oprogramowania wyjmuje się z card computera jak z maszyny jako gotowe progamy napisane automatycznie do użycia i sprzedaży. 
 Gotowe gry komputerowe można wyjąć. 
 Voisowi podaje się tylko opis oprogramowania na karte micro SD a vois pisze oprogramowanie automatycznie a my jesteśmy prorgamisto pilotem filozofem pisze jak zenit Vois kalkulator filozoficzny. 
+Vois liczy automatycznie software i go generuje bez znajomości programowania pisze się software i AI i kody jak listy miłosne czy meile zwykłym językiem z opisu oprorgramowania. 
