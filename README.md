@@ -17,3 +17,4 @@ To jest projekt cardcomputer dla nie wiedzących.
 To jest już Lotto mechatroniczne gotowców z encyklopedi dla GitHub i Cercil. 
 To jest Vois EEG Cardputer omnibus. 
 To jest seed studio encyklopedi software produkcja. 
+To jest maszynka do łojenia kasy i oprogramowania. 
