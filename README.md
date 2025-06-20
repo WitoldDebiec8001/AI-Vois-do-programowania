@@ -12,3 +12,4 @@ To jest programator automatyczny do wymyślania gotowych produktów za pomocą m
 Ten vois EEG KALKULATOR CARDPUTER produkuje oprogramowanie masowo jak fabryka papierosów. 
 Ten cardcomputer generuje jako programator automatyczny encyklopedię komputerowe software gotowych programów. To jest vois ze strefy 51 futurystyczny cardputer Vois EEG programtor automatyczny. 
 Ten Vois wyklepie całom serie statków kosmicznych jonolotów i zbroi Iron Men God Iron Men też serie i różne modele. 
+Jak chce się gotowy produkt to podpina się to pod drukarkę kwantową i drukuje się radio drukarką kwantową jak replikatorem materi gotowy produkt na sklep. 
