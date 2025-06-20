@@ -18,3 +18,4 @@ To jest już Lotto mechatroniczne gotowców z encyklopedi dla GitHub i Cercil.
 To jest Vois EEG Cardputer omnibus. 
 To jest seed studio encyklopedi software produkcja. 
 To jest maszynka do łojenia kasy i oprogramowania. 
+To nie jest Alexa Vois w kocyku do ruchania i pisania listów miłosnych do AI to nie jest Vois AI w ciele biologicznym to kalkulator komputer AI pisze się listy i meile do produkcji Oprogramowania do CardComputera na czacie vois i EEG. To maszyna Vois EEG nie CardComputer hotelik dla AI czy programistów. 
