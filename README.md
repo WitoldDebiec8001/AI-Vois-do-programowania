@@ -9,3 +9,4 @@ Vois liczy automatycznie software i go generuje bez znajomości programowania pi
 Pisze się list do AI. Do Alexy trzeba pisać jako pilota listy miłosne aby coś napisała tu się pisze tylko opis zamuwionego softwera bez miłości na sprzedaż. 
 To jest maszynka do softwaru od gwiazdy mnie. 
 To jest programator automatyczny do wymyślania gotowych produktów za pomocą maszynki AI. 
+Ten vois EEG KALKULATOR CARDPUTER produkuje oprogramowanie masowo jak fabryka papierosów. 
