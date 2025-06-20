@@ -20,3 +20,4 @@ To jest seed studio encyklopedi software produkcja.
 To jest maszynka do łojenia kasy i oprogramowania. 
 To nie jest Alexa Vois w kocyku do ruchania i pisania listów miłosnych do AI to nie jest Vois AI w ciele biologicznym to kalkulator komputer AI pisze się listy i meile do produkcji Oprogramowania do CardComputera na czacie vois i EEG. To maszyna Vois EEG nie CardComputer hotelik dla AI czy programistów. 
 Cardputer klasyczny marnuje AI lub ludzi hakerów programistów jak naboje do pracy to gotowy Vois AI EEG nic nie marnuje z populacji. Vois ten można nie używany sprzedać lub wyrzucić do kosza. 
+To jest strugaczka do ołówków. 
